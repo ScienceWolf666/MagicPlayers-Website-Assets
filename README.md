@@ -10,7 +10,7 @@
 ![1](https://github.com/ScienceWolf666/MagicPlayersWebOfflinedatabackup/blob/Main-Repository/WolfTechArma-Logoconcept1.png)
 
 ### 4
-![1](https://github.com/ScienceWolf666/MagicPlayersWebOfflinedatabackup/blob/Main-Repository/WolfTechArma-Logoconcept1.png)
+![1](https://github.com/ScienceWolf666/MagicPlayersWebOfflinedatabackup/blob/Main-Repository/ScienceWolf2DoingScience.png)
 
 ### 5
 ![1](https://github.com/ScienceWolf666/MagicPlayersWebOfflinedatabackup/blob/Main-Repository/Baner4_Magic_Players.png)
