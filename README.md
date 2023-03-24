@@ -1,4 +1,4 @@
-## MagicPlayersWebOfflinedatabackup
+## 🔌🌎 | MagicPlayers Website Offline Emergency Source Of images/Data
 
 ### 1
 ![1](https://github.com/ScienceWolf666/MagicPlayersWebOfflinedatabackup/blob/Main-Repository/Baner4_Magic_Players.png)
