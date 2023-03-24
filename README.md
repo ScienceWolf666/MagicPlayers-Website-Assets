@@ -13,7 +13,7 @@
 ![1](https://github.com/ScienceWolf666/MagicPlayersWebOfflinedatabackup/blob/Main-Repository/ScienceWolf2DoingScience.png)
 
 ### 5
-![1](https://github.com/ScienceWolf666/MagicPlayersWebOfflinedatabackup/blob/Main-Repository/Baner4_Magic_Players.png)
+![1](https://github.com/ScienceWolf666/MagicPlayersWebOfflinedatabackup/blob/Main-Repository/Science_Wolf_Main_PROF_Avatar_UPGRADE2.png)
 
 
 
