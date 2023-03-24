@@ -15,12 +15,5 @@
 ### 5
 ![1](https://github.com/ScienceWolf666/MagicPlayersWebOfflinedatabackup/blob/Main-Repository/Baner4_Magic_Players.png)
 
-### 6
-![1](https://github.com/ScienceWolf666/MagicPlayersWebOfflinedatabackup/blob/Main-Repository/Baner4_Magic_Players.png)
 
-### 7
-![1](https://github.com/ScienceWolf666/MagicPlayersWebOfflinedatabackup/blob/Main-Repository/Baner4_Magic_Players.png)
-
-### 8
-![1](https://github.com/ScienceWolf666/MagicPlayersWebOfflinedatabackup/blob/Main-Repository/Baner4_Magic_Players.png)
 
